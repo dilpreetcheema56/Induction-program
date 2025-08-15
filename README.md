@@ -14,4 +14,5 @@ There is start with the lecture by Dr.Parminder singh dean of student welfare th
 # Day - 6
 In the start of day there is maths lecture by prof.Rajbir kaur they discuss about differentiation.Then there is physics lecture by prof. jaspreet singh they discussed about syllabus and exam pattern. Then there is lecture by Dr.lakhvir singh khana about the CML program they let us about them , what we will learn in this and how there students organizes activities. Then there is prayer in the start then there is lecture by Dr.jasvir singh grewal incharge of NSS they about the activities they conduct and mean of NSS .
 # Day - 7 
-There lecture in workshops and my class is in welding workshop in which teacher tell us about types of metal , types of welding ,what material we need .
+There lecture in workshops and my class is in welding workshop in which teacher tell us about types of metal , types of welding ,what material we need . they tell us different types of workshops
+
